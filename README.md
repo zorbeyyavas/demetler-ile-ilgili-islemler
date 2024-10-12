@@ -1,0 +1,1 @@
+# demetler-ile-ilgili-islemler
